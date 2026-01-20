@@ -5,7 +5,7 @@
 
 <h3><b><p align="center">
 IMPORTANT: fakeclaiming will get you hidden/blocked.<br>
-<u>you are not entitled to my diagnostic paperwork.</u>
+<ins>you are not entitled to my diagnostic paperwork.</ins>
 </p></b></h3>
 
 <p align="center"> <p align="center"> <p align="center">
