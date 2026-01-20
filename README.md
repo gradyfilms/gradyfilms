@@ -4,7 +4,8 @@
 # <h2 align="center">" Come now, come and savor this chilling show, crafted just for you — a silent horror all your own. "</h2>
 
 <h3><b><p align="center">
-IMPORTANT: fakeclaiming will get you hidden/blocked - <u>you are not entitled to my diagnostic paperwork.</u>
+IMPORTANT: fakeclaiming will get you hidden/blocked.<br>
+<u>you are not entitled to my diagnostic paperwork.</u>
 </p></b></h3>
 
 <p align="center"> <p align="center"> <p align="center">
