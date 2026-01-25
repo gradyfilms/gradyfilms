@@ -19,7 +19,7 @@ hi my name is FRAG! I'm 20yrs old. skins tagged with "sys" are my headmates!
 <p align="center">
 I love Mr. Reca and I also love Grady from the Honkai: Star Rail x Fate collaboration quest. please don't slander either of them around me 💞
   <br> I'm also a staunch believer in them kissing with tongue.
-<sub><br>the character showcased on this page is my design of Grady; the one with blood is my slasher/snuff director AU of him</sub>
+<sub><br>the character showcased on this page is my design of Grady; the one with blood is my slasher AU of him</sub>
 </p>
 
 <h3><p align="center">
