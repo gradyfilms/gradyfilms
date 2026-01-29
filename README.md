@@ -14,7 +14,7 @@ IMPORTANT: fakeclaiming will get you hidden/blocked.<br>
 <p align="center">
 hi my name is FRAG! I'm 20yrs old. skins tagged with "sys" are my headmates!
   <br> I have autism and RSD (rejection sensitive dysphoria); I may be a bit awkward and/or shy
-  <br> I respond to all atabook messages :)
+  <br> I respond to all atabook messages unless you're being an asshole :)
 </p>
 
 <p align="center">
